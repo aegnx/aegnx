@@ -1,11 +1,12 @@
 hi im aegnx
 
-i barely have coding knowledge (for now lmao)
+idk what I should learn tbh (bouncing between rust and c)
 
-i have one of the best membrane keyboards u can find out there (rapoo x120 pro)
-
-i type at around a solid 80wpm
+i type at around a solid 80wpm (120 bursts)
 
 and my main goal is to do whatever seems interesting to me
 
-i listen to alot of soad and korn
+i have a 20 hour playlist with some music I enjoy, here it is:
+
+
+https://open.spotify.com/playlist/5Ugx3qmqFN5uzFLUP6bnGS
